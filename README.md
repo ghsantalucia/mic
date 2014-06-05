@@ -18,4 +18,3 @@ O MIC contará com todas as principais localidades do campus, que poderão ser a
 
 
 
-
